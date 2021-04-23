@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pdes725
-- 👀 I’m interested in project management 
+- 👀 I’m interested in project management, supply chain management and Lean six sigma. 
 - 🌱 I’m currently learning AWS & DevOps
 - 📫 How to reach me 9886493340 
 
